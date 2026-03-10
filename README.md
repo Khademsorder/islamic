@@ -1,2 +1,0 @@
-# islamic
-islamic hub
